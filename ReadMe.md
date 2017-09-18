@@ -10,4 +10,4 @@ back to his homeland (is) of utmost importance. This individual finds himself in
 - John Hopkins: Matthew Harrilal
 - Wise Older Man: Elmer Astudillo
 - Favored Younger Boy: Sam Galiza
-- Wise Sage: Laurel Machak (changed to add female cast member)
+- Wise Sage: Tia King
